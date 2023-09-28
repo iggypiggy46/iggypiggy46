@@ -1,4 +1,4 @@
-![le funni gif](https://media.giphy.com/media/fZoKDBwdbILBjhtXZD/giphy.gif)
+![le funni gif](funny giphy.webp)
 
 # Ignatius Wieber
 
