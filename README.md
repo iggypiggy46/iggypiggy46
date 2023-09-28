@@ -21,3 +21,5 @@
 ## Superpower
 Can touch my toes to the top of my foot
 
+## Dept of Design
+* [Dept of Design](https://www.ewu.edu/cstem/design/)
