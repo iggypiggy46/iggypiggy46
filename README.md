@@ -1,4 +1,4 @@
-![le funni gif](funny giphy.webp)
+![le funni gif](funny-giphy.webp)
 
 # Ignatius Wieber
 
